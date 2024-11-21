@@ -14,7 +14,7 @@
 [https://docs.google.com/document/d/1oZTGLnIQ3dzOyQYTcBFowCfNQQLw3y0x5NHOgK0rrkA/edit?usp=sharing]
 
 ### Se adjunta una muestra de como llevar el control de pulsaciones
-[https://docs.google.com/spreadsheets/d/1eLcaMhjBPEx6hO_QJ9Vz7BTucYZGDkiHtwVD40iDSwI/edit?usp=sharing]
+[https://docs.google.com/spreadsheets/d/1eLcaMhjBPEx6hO_QJ9Vz7BTucYZGDkiHtwVD40iDSwI/edit?gid=0#gid=0]
 
 ### Presentaciones sobre rutinas y ejercicios para mantener el físico ante cambios alimenticios.
 [https://app.presentations.ai/view/KQOirT]
